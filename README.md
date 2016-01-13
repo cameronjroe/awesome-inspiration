@@ -24,3 +24,14 @@
 - [How To Study - The Keys To Acing School & College](https://www.youtube.com/watch?v=i4EwtuSuF1E)
 - [How To Deal With Strong Negative Emotions](https://www.youtube.com/watch?v=l96TZeZGlDg)
 - [A Vision For The Self Actualized Life - Get Yo Ass Inspired!](https://www.youtube.com/watch?v=jo_3rvcUpJw)
+- [Your words and thoughts have physical power - Will Smith](https://www.youtube.com/watch?v=pfWGoLj1JCM)
+
+#### Epic YouTube Channels
+- [Tony Robbins](https://www.youtube.com/user/TonyRobbinsLive)
+- [Actualized](https://www.youtube.com/user/ActualizedOrg)
+- [TEDx](https://www.youtube.com/user/TEDxTalks)
+- [TED](https://www.youtube.com/user/TEDtalksDirector)
+- [Entrepreneur](https://www.youtube.com/user/EntrepreneurOnline)
+- [This Week In Startups](https://www.youtube.com/show/thisweekinstartups)
+- [Ramit Sethi](https://www.youtube.com/user/ramitsethi)
+- [RSD Motivation](https://www.youtube.com/user/RSDMotivation)
